@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ezekieltsarmiento
-- 📚 You want learn more...
+- 📚 Learn more...
 - 📩 My Email: admin@ezekieltsarmiento.me
 
 <!---
